@@ -1,2 +1,3 @@
 # SD_Hub-SyedNawaz
-uihughiujnko9hih
+craete a designing page
+it includes all the technical skills 
